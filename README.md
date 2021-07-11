@@ -11,9 +11,9 @@ All the videos that are presented on the channel are created by me personally.
 Everything we do, we try to do with great attention. Pay attention to our features
 https://medium.com/polkadot-ecosystem-promoteam/promoteam-what-we-can-do-for-the-projects-and-polkadot-ecosystem-d6b46b8ed39c
 
-
-
 To contact me.
 https://vladylimes.medium.com/
 https://twitter.com/vladylimes
 https://t.me/vladylimes
+
+vladylimes@gmail.com
