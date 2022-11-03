@@ -1,0 +1,1 @@
+Linking my account vladylime on GitHub with my address 5DtEr9BGQJMwwTkQLicvTvHuKjrFAExjUgCZZwCmREBUywZ6 on Substrate in mycryptoprofile.io, and the challenge code is: 60e29d1b8d76caee5e8442d27674820e. #LitentryVerifyMyAddress
